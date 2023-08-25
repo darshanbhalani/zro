@@ -1,4 +1,3 @@
-![Screenshot 2023-08-25 131541](https://github.com/darshanbhalani/zro/assets/108427824/fb015888-1992-47b4-8131-f6d88346a92c)
 ![Screenshot 2023-08-25 131541](https://github.com/darshanbhalani/zro/assets/108427824/65d5ef6b-0da5-45ae-9f8b-378362603944)
 ![Screenshot 2023-08-25 132417](https://github.com/darshanbhalani/zro/assets/108427824/8724de68-bd7a-4850-8ef2-e62733c93731)
 ![Screenshot 2023-08-25 142229](https://github.com/darshanbhalani/zro/assets/108427824/fa495c22-e9fc-4f6d-9b9f-a525ec3122ca)
